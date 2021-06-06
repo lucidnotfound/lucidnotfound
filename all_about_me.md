@@ -7,9 +7,11 @@ heres some things you should know about me and what i do in general! ^_^
 #-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-
 
 My name is Lucid (my real name is rosa, i dont mind if you use it)
-i am a transgender female, and i code games and mod games for fun
-im not that good at it but i try anyway
+
+i am a transgender female, and i code games and mod games for fun im not that good at it but i try anyway
+
 i started coding/making games on ROBLOX back in 2018 and have been doing it ever since
+
 my pronouns are ze/zir/zirself, it/its/itself, she/her/herself, they/them/themself
 
 #-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-
