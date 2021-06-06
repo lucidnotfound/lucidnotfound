@@ -1,7 +1,6 @@
 Hey whats up?
 
-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-
-
+#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#-#
 this is the public README.md file for lucidnotfound (aka me)
 heres some things you should know about me and what i do in general! ^_^
 
